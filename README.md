@@ -1,1 +1,1 @@
-# FE-Executor this is a roblox executor you have to download it go in roblox and open the exe file. Its keyless and no malware and save to use have fun!
+# FE-Executor this is a roblox executor you have to download it go in roblox and open the exe file its gonna set up its files and then you can start. Its keyless and no malware and save to use have fun!
